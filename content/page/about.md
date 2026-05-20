@@ -26,4 +26,4 @@ I'm also trying to keep up my habit of reading a good few books but no matter ho
 
 When I do get around to blogging I usually write about whatever is on my mind, so you're likely to find a mix of gaming, movies, music, stationery, books and random bits of Japan to read while you browse through the archives.
 
-No matter how you ended up on my blog I hope you'll enjoy reading through past posts and find something interesting. You can also find all my other links and miscellaneous sites [here](https://terrance.omg.lol/).
+No matter how you ended up on my blog I hope you'll enjoy reading through past posts and find something interesting. You can also find all my other links and miscellaneous sites [here](https://lekker.page).
