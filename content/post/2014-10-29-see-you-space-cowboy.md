@@ -13,8 +13,6 @@ I think it came down to a combination of burnout and just that the quality of sh
 
 Despite the apathy I've had towards anime over the last few years I just went and pre-ordered the [new Blu-ray release of _Cowboy Bebop_][1].
 
-![Amazon exclusive set](/assets/post-images/cowboybebopset.jpg)
-
 [Cowboy Bebop][2] is the story of a group of down on their luck bounty hunters in the near future and the adventures they get into. There's also some excellently written back story weaved into a longer plot thread that winds its way through the various episodes and ends the series on a spectacular note.
 
 What made the show so phenomenally good for not just me but most other anime fans is that it had the perfect mix of character development, action, music, cinema influences and was just darn cool.

@@ -17,8 +17,6 @@ It's also interesting to note that only Seven Eleven and Lawson are actually goi
 
 With a couple of my local convenience stores deciding to offer donuts I thought it was my civic duty to try and taste as many of them as I can while also savouring their delicious selection of coffees. In my extensive taste testing it would appear that the fresh donuts that Seven Eleven offers pretty darn tasty with my personal preference being the old fashioned style.
 
-![7-11 Old-fashioned donut](/assets/post-images/old-fashioned.jpg) 
-
 That said, I keep finding myself heading into my local Lawson during the afternoon to grab a donut and an iced Cafe Latte. It's just _so_ good that I can't help myself!
 
 I'm ever so glad that since it's summer I can eat the odd donut every so often and work off the calories by jogging when I get home. come summer I'm definitely going to need to exercise some self-restraint!

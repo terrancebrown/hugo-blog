@@ -17,8 +17,6 @@ With the release of each new film in this [Rebuild series][2] local businesses a
 
 The most recent example, and the one that inspired me to write this post, is the [7-11 convenience store chain that is running a campaign][3] that includes the opportunity to buy a 2-meter tall Evangelion statue for ￥1,700,000!
 
-![Evangelion statue](/assets/post-images/evangelion.jpg)
-
 During August you can also grab hold of charm straps and branded instant ramen noodles for a limited time.
 
 And the kicker is that like everyone else, I rushed to the 7-11 round the corner from my house and picked one of the Evangelion [Bearbrick][4] straps.

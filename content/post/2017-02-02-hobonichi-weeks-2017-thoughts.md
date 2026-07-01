@@ -18,8 +18,6 @@ A couple of years back I was using the smaller Hobonichi Weeks as my daily diary
 
 So with February 1 arriving, I've decided to pick up a [Linen Weeks][1] to use as my daily planner for work and daily life.
 
-![Weeks 2017](/assets/post-images/weeks2017.jpg)
-
 The best thing about the Weeks planner is just how small it is, while at the same time giving you plenty of space to jot down your day's appointments and lessons. Each two page spread covers a week on the left hand side while on the right side you have a sheet of  grid paper that you can use either as a general space to jot down any additional information or as a day by day area.
 
 Towards the end of the planner you also get 76  pages of grid paper that you can use in any way you feel fit. I think I'll use these pages as a [bullet journal][2] at the start and see how that works out.

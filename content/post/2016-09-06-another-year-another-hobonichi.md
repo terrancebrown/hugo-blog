@@ -15,25 +15,17 @@ So when the new Hobonichi planners and covers were released on September 1 I hop
 
 For 2017 I've opted for the following two covers for my planners:
 
-![Memories Mother 2](/assets/post-images/memoriesmother2.jpg) 
-
 **Memories (Mother 2)**
 
 [Itoi Shigesato][6] is the man behind the company that designs and produces the Hobonichi Techi, but before that he was famous in Japan as a copywriter. Most people outside of Japan though will know him as the person behind the [Mother series of games][7] for Nintendo which have achieved somewhat of a cult status amongst gamers. The last few years have seen him design covers based on the Mother games and each year I've picked one up to use as my daily writing journal. This year I opted for the Memories cover simply because I wanted something a bit more lighthearted in feeling rather than a standard color or design, and the Memories cover manages to hit that perfectly with its blend of bright colors and scenes from the Mother 2 game.
-
-![Caribbean Blue](/assets/post-images/caribbeanblue.jpg)
 
 **Caribbean Blue (Colors)**
 
 The Colors series of covers are usually the cheapest on offer and stick to a series of unique color combinations that are targeted towards men or woman and in some cases are appealing to both sexes. Rather that opting for a second A6 size Hobonichi I decided to go for the larger A5 size Hobonichi Cousin to fit in plenty of notes on my lessons as well as general schedule things and any studies I may take up in the next year or so. The Caribbean Blue cover was by far the most cool of the Colors series with the unique and retro styling of the dark blue exterior and the dark brown interior.
 
-![Royal Stewart](/assets/post-images/royalstewart.jpg) 
-
 **Royal Stewart (Lochcarron)**
 
 The [Royal Stewart cover][8] is one that I'd actually bought as a present for my mother earlier in the year and when I saw it I knew that if I had the chance I'd want one for myself as well. So just before they rolled the site over to the 2017 cover designs I ordered one for myself to use as a travel cover for my A6 size Hobonichi in tandem with the Memories cover. The Royal Stewart cover is one of the Zippers covers that Hobonichi offers and is made by Lochcarron, who provide the Queen of England with tartan shawls and clothes for the Royal Guard. Pretty awesome if you ask me!
-
-![Dress Gordon](/assets/post-images/dressgordon.jpg)
 
 **Dress Gordon (Lochcarron)**
 
@@ -44,7 +36,7 @@ Of course there's also a couple of other goodies I've got on order to go along w
 Even if you're not a person who keeps a journal or you have no interest in logging the minutiae of your life, I can still recommend a Hobonichi planner. It's a book and system that work with you in whatever way complements your life best. So head on over to their site and have a browse through what they have to offer. They even offer worldwide shipping and they have a site that is fully English!
 
 [1]: http://help.1101.com/store/techo/usage_example/
-[2]: /2015/02/18/a-look-at-the-hobonichi-techo/
+[2]: /post/2015-02-18-a-look-at-the-hobonichi-techo/
 [3]: http://www.kokuyo-st.co.jp/stationery/jibun_techo/
 [4]: http://www.edit-marks.jp/
 [5]: http://www.travelers-company.com/products/trnote/2016diary

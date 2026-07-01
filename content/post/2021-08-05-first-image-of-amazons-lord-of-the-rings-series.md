@@ -8,8 +8,6 @@ Just this past week, the first image of Amazon's Lord of the Rings series [came 
 
 <!--more--> 
 
-![Lord of the Rings first image](/assets/post-images/AmazonStudios_210802A_HD-1024x576.jpg)
-
 First off, the series is slated to start September 2, 2022 on Amazon Prime and has just wrapped up filming in New Zealand after 18 months of shooting. Hopefully in just over a year or so, I'll be settling in to watch a rather exciting series that will return to the beautiful world of JRR Tolkien's Middle Earth.
 
 The image itself looks gorgeous and has a very similar feel to the movie trilogy, which is no bad thing to say. The scope looks fantastic, and is something I think that is essential in conveying the immensity of the Hobbit's mission in destroying the one ring. You have to *feel* how gargantuan their task must feel by seeing the scope of the world lying ahead of them.

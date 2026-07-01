@@ -7,15 +7,11 @@ This year I'm trying to buck the trend and get my annual Hobonichi post out way 
 
 <!--more-->
 
-![Makino Navy x Brown](/assets/post-images/makino.jpg)
-
 ## Makino Collection / Navy x Brown
 
 I've always had a fondness for Japanese fabrics and materials so when I stumbled on the fact that Makino was collaborating with Hobonichi once again after several years I jumped at the chance. Using a journal for a year means that you'll constantly be carrying it and holding it, so if it's got an interesting texture that can only make the experience better. That's why I always tend to have leather covers if at all possible for my notebooks.
 
 As usual, this A6 size Hobonichi will serve as my personal journal that I'll use for a mix of notes and personal habit tracking with the odd bit of writing thrown in. All my daily journalling is still done in my 5 year Hobonichi so this journal will fill in all the other needs / gaps I might come across.
-
-![Calm Navy](/assets/post-images/calmnavy.jpg)
 
 ## Colors / Calm Navy
 

@@ -7,8 +7,6 @@ Sometimes living in Japan does have it's perks, as in this case when students at
 
 <!--more-->
 
-![Mad Max Graduates](/assets/post-images/madmaxgraduates.jpg)
-
 Just in case you need a refresher on the characters from the movie to see how they compare, check out the trailer below.
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/hEJnMQG9ev8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
